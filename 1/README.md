@@ -1,0 +1,1 @@
+![Decizijska ploha](image.png)
